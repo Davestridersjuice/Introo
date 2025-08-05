@@ -63,5 +63,17 @@
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0719ab93-25ad-4d62-9c04-1d74e82b7ab7" />That's all I could think of<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/93a890f9-14e1-41ec-91e5-992a1533242b" />
 
+## Item sources:
+[Pridepixel](https://www.tumblr.com/roomwithavoid/785571839086936064/more-nonbinary-identity-blinkies-happy-pride?source=share)
+[Littlepixels](https://www.tumblr.com/wiltyrose/746757437056565248/%E1%9B%9D-%E2%84%B1yodor-%F0%9D%92%ABixels-%F0%93%8F%8F-f2u-w-repost-%E1%B5%92%CA%B3?source=share)
+[Pink&Purplepixels](https://www.tumblr.com/mikayuuyuri/781551677893410816/%E1%98%9B-%E1%98%9A-pink-purple-pixels?source=share) <dv>
+
+[Panty&stockingtemplate](https://www.tumblr.com/lavendergalactic/747588068545101824/stocking-anarchy-tumblr-dividers?source=share)
+[TwotimeBanner](https://in.pinterest.com/pin/579416308347159571/)
+
+**I couldn't find the other 2 sadly :( But most-likely credit wasn't needed for those.**
+
+
+
 
 <img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/f1a25d96-862d-4458-8d95-ab3f4a5cdeff" />
