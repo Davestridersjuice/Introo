@@ -11,13 +11,12 @@
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4a9624df-fb1b-455e-85bd-5151f92a9d57" />
 
-![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true) I'M A MINOR ![PURPLEPIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
-## *FOLLOW AND I'LL FOLLOW BACK!*
+![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true) **I'M A MINOR** ![PURPLEPIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
+
+![Flutter](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gifv) **FOLLOW AND I'LL FOLLOW BACK!** ![Flutter](https://64.media.tumblr.com/58a86299007199c863a2a5b867991ebf/c80e85c672fd2385-18/s75x75_c1/043819ccb3de7148fd6bba714f4693a6e69de56d.gifv)
 
 
-
-
-**Discord** - nepmew ![Nepeta Leijon](https://media.discordapp.net/attachments/1371629223646855189/1402365524960084133/tumblr_8b38478b3fb2f9a7ee5eea4cbacd3443_aa8bac1d_100.webp?ex=6893a62b&is=689254ab&hm=e37fca5bc521d8a0cac6d05c313758ef30bb72644ffc5c9352f251c7b8e87d95&=&animated=true)
+**Discord** - `Davestridersjuice`
 
 **Pinterest** - https://www.pinterest.com/r_isenII/
 
@@ -27,11 +26,11 @@
 
 ## My fandoms/games I like:
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Games**: Deltarune, Undertale (+ sans au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Puppet combo games, Dragon Raja, and more
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Games**: *Deltarune, Undertale (+ sans au versions), COD, Roblox, Ponytown, Danganronpa, all Devsister games, Resident Evil, Puppet combo games, Dragon Raja, and more*
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Fandoms**: Madoka Magica, Homestuck, Castle Swimmer, Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Black Cat and more
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" /> **Fandoms**: *Madoka Magica, Homestuck, Castle Swimmer, Dream Game, Forsaken, Die of Death, Jayfromthekubzscouts, Countryhumans, Underverse, Vocaloid, BSD, Soul Eater, Black Lagoon, Tokyo Revengers, Black Cat and more*
 
-## WIP
+**Note: I don't ship that much so I don't have much opinion on them but I do like adminvirus, azuretime, madohomu, kyosaya, suselle, and much more. I know these r basic.. I also don't really care if you're a dandy's world fan or alienstage, just don't try to get me into the fandom.. I hate those. Same with Geshin, ZZZ.**
 
 ## Stuff about me ᓚᘏᗢ
 
@@ -44,19 +43,25 @@
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may sometimes yap a bunch and move around a lot!<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass<br>
- <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I REALLY like cats and the color purple... Purple is my fav color its so pretty<br>
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I REALLY like cats and the color purple... Purple is my fav color its so pretty<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4a9624df-fb1b-455e-85bd-5151f92a9d57" /> <br>
 
 <div align="center">
  
-![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)<br>
+![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)**I may be a bit uneducated, slow, and annoying at times. If there's ever any problems whether I hurt your feelings, am annoying you, or just doing anything pls speak up!! It's better for me to know and learn than to not know and keep annoying you**![PURPLE PIXELS](https://media.discordapp.net/attachments/1371629223646855189/1402362740932214885/tumblr_9b707b37f26fd11197ab48f147d788ba_32db9b51_75.webp?ex=6893a394&is=68925214&hm=aed6a31c1f8e80972c9ffe62555e3168a554750be6100236c851cc332f0ef3b7&=&animated=true)
 
+</div>
 
 ## DNI:
 
-Darkshippers/proshippers/shota/loli con/incel/femcel and anything else of that problematic nature<br>
-Dry texter<br>
-If you support AI<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/efad364f-daf4-4e82-a4dc-40861c0bfe8f" />Darkshippers/proshippers/shota/loli con/incel/femcel/blackpill and anything else of that problematic/annoying nature<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/15fdd7a4-4b15-45f4-bfc9-a86b601b4196" />If you're one of those weird yaoi/yuri obsessed freaks (Like if you say "is he bothering you girl?" "Oh yeah read Jinx I like the rape in it!") etc...<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ac8cb78b-6b80-43e9-8779-06fca05c0b49" />If you act like a victim even though youre very much in the wrong<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/9de25df2-bea4-440a-9aee-35b94d4ea974" />If you support AI<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fa96deb0-1176-4478-8af4-b0432a7a4c3b" />Pushy/rude people (Like if you push for personal info and make the person uncomfy)<br>
+
+<div align="center">
+
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0719ab93-25ad-4d62-9c04-1d74e82b7ab7" />That's all I could think of<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/93a890f9-14e1-41ec-91e5-992a1533242b" />
 
 
-<img width="864" height="226" alt="image" src="https://github.com/user-attachments/assets/505acf3c-d532-482b-8faa-0a1614c82c89" />
 <img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/f1a25d96-862d-4458-8d95-ab3f4a5cdeff" />
