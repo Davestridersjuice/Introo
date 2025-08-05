@@ -54,8 +54,7 @@
 ## DNI:
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/efad364f-daf4-4e82-a4dc-40861c0bfe8f" />Darkshippers/proshippers/shota/loli con/incel/femcel/blackpill and anything else of that problematic/annoying nature<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/15fdd7a4-4b15-45f4-bfc9-a86b601b4196" />If you're one of those weird yaoi/yuri obsessed freaks (Like if you say "is he bothering you girl?" "Oh yeah read Jinx I like the rape in it!") etc...<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ac8cb78b-6b80-43e9-8779-06fca05c0b49" />If you act like a victim even though youre very much in the wrong<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/15fdd7a4-4b15-45f4-bfc9-a86b601b4196" />If you're one of those weird yaoi/yuri obsessed freaks (Like if you say "is he bothering you queen?" "Oh yeah read Jinx!") etc...<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/9de25df2-bea4-440a-9aee-35b94d4ea974" />If you support AI<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/fa96deb0-1176-4478-8af4-b0432a7a4c3b" />Pushy/rude people (Like if you push for personal info and make the person uncomfy)<br>
 
