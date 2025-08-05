@@ -43,7 +43,7 @@
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may sometimes yap a bunch and move around a lot!<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass<br>
- <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I REALLY like cats and the color purple... Purple is my fav color its so pretty<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/4a9624df-fb1b-455e-85bd-5151f92a9d57" /> <br>
+ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I REALLY like cats and the color purple... Purple is my fav color <br>
 
 <div align="center">
  
