@@ -41,7 +41,7 @@
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />If I'm on pt not talking I'm either on Pinterest, Tiktok, Youtube, Discord, or Webtoon..<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I like to use emoticons lots! And I sometimes simplify/shorten words to type faster...<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I'm usually very open with my weirdness so pls tell me if I ever make u uncomfy or anything!<br>
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may sometimes yap a bunch and move around a lot!<br>
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may sometimes yap a bunch and never stop talking!<br>
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I may say some really weird thing as a joke and not use /j... I only rlly use /srs or say deadass<br>
  <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20bcf1ad-176d-4f80-8e94-4103bdb80a27" />I REALLY like cats and the color purple... Purple is my fav color <br>
 
