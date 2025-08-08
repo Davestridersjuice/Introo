@@ -60,10 +60,6 @@
 
 <div align="center">
 
-## DNI matty/aris/pawl and Donnie
-
-<div align="center">
-
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0719ab93-25ad-4d62-9c04-1d74e82b7ab7" />That's all I could think of<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/93a890f9-14e1-41ec-91e5-992a1533242b" />
 
 ## Item sources:
@@ -76,7 +72,10 @@
 
 **I couldn't find the other 2 sadly :( But most-likely credit wasn't needed for those.**
 
-
-
+<picture>
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake-dark.svg">
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake.svg">
+  <img alt="github contribution grid snake animation" src="https://raw.githubusercontent.com/platane/platane/output/github-contribution-grid-snake.svg">
+</picture>
 
 <img width="2048" height="320" alt="image" src="https://github.com/user-attachments/assets/f1a25d96-862d-4458-8d95-ab3f4a5cdeff" />
